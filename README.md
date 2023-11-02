@@ -1,7 +1,3 @@
 # proyectoDispositivosMoviles
-	
 
-
-
-
-https://drive.google.com/file/d/1qqN6-YtuWRp046p-F3LSngUCAiun13dp/view?usp=sharing
+https://drive.google.com/drive/folders/1aqYo75CNUhQLkhWagpvrje3Rq-v09Ul2?usp=sharing
